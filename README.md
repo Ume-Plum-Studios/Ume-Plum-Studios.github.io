@@ -1,2 +1,0 @@
-# bluejayflew.github.io
-Portfolio 
